@@ -1,2 +1,2 @@
-# Wyci-ganiewtryskiwaczyma-opolskie
+# wyciaganiewtryskiwaczymalopolskie
 mechanikwiśniowa
